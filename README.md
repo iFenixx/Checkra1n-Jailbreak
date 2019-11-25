@@ -1,4 +1,4 @@
 # Checkra1n-Jailbreak
 
-iPhone 5s – iPhone X, iOS 12.3 and up
+[Imgur Image](https://resimyukle.org/images/2019/11/25/Adsiz.jpg)
 
